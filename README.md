@@ -37,13 +37,13 @@
 
 点击访问：<a href="https://hl402.pages.dev/">黑料社热门</a>
 
-点击访问：<a href="https://hl440.pages.dev/">夸克</a>
+点击访问：<a href="https://hl440.pages.dev/">黑料社每日分享</a>
 
 点击访问：<a href="https://hi87.pages.dev/">TikTok成人版精选</a>
 
 点击访问：<a href="https://pi90.pages.dev/">TikTok成人版</a>
 
-点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜必吃大瓜936</a>
+点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜必吃大瓜</a>
 
 主要内容：
 
